@@ -40,3 +40,7 @@ Later they were also active in [PpW](@/o/ppw.md) since 2023.
 
 * The Greens are also known as Zielone Małpy (_Green Monkeys_), and their official mascot, used in their "shoot" promos and Instagram notes is an orangutan "🦧".
 * The group has their own insider championship, called "ZLN GNG Championship", shown mostly on their social media during the group's meetings. It was created by modifying the DFW championship belt, replacing its mainplate with a green one. The sideplates show wrestler Dave Batista.
+
+## Honorary Members 
+
+There are a few individuals considered so-called "Honorary Greens." This title is periodically awarded for outstanding achievements and contributions to the Polish Wrestling Scene, as well as for maintaining good relations with the "Original Greens." So far, the title of Honorary Green has been awarded to "Top Gun" [Samson](@/w/samson.md) and the "Gray eminence of PSV," Kaczmix.
